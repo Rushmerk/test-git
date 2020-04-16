@@ -1,1 +1,1 @@
-eu to so aprendendo html e testando a ferramenta, eh isto ignora
+eu SO TO aprendendo html e testando a ferramenta, eh isto ignora
